@@ -1,5 +1,5 @@
 ## ════════════ ⋆★⋆ ════════════
-### Hi there!!! I am Eduward S - aka Cl4W33👋
+### Hi there!!! I am Cl4W33👋
 
 <p>Existing Files</p>
 
